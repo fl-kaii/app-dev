@@ -14,7 +14,7 @@ T^2^
 And Sophia hates Shady Pines who has a love-hate relationship with her daughter, Dorothy.
 
 Golden Girls has a lot to offer.
-1. ==Family/Friend bonding==
+1. Family/Friend bonding
 2. Comedy gold for all ages
 3. Talks a lot of things that were too ahead of its time
 
@@ -26,7 +26,7 @@ Golden Girls has a lot to offer.
 ---
 [The Golden Girls](https://en.wikipedia.org/wiki/The_Golden_Girls)
 
-The Golden Girls never age, so do the women in this show. [^1]
+The Golden Girls never age, so do the women in this show.
 
 ### Yay {GGG}
 
